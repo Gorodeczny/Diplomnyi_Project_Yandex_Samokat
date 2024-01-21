@@ -1,0 +1,1 @@
+# Diplomnyi_Project_Yandex_Samokat
